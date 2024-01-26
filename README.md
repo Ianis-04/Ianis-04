@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ianis-04
+- 👋 Hi, I’m @Sofinishna
 - 👀 I’m interested in coding and reading huge sociological texts
 - 🌱 I am currently enrolled in the best educational program in the country in the field of social sciences
 
