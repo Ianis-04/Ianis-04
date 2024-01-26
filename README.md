@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ianis-04
-- 👀 I’m interested in coding, singing, reading huge sociological texts
+- 👀 I’m interested in coding and reading huge sociological texts
 - 🌱 I am currently enrolled in the best educational program in the country in the field of social sciences
 
 <!---
